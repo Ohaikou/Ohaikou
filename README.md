@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ohaikou
+- 👀 I’m interested in Music and Game production, and also Art 
+- 🌱 I’m currently learning Music and Art
+- 💞️ I’m looking to collaborate on anything that envolves music or art!
+- 📫 How to reach me? call me on Discord: Ohaikou.#2621
